@@ -1,4 +1,4 @@
-# 
+# Instantâneo Adobe Premiere Pro para PC ferramentas é o melhor Adobe Premiere Pro para PC ferramentas com graduação de cor e gravação. Seguro, confiável e otimizado para máximo
 
 
 
